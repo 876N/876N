@@ -1,3 +1,4 @@
 Welcome to my house
 -----------------------
-![Red_Trollface](https://github.com/876N/Parknol.exe/assets/133999409/b97776bb-7454-45ca-8973-73224bdf38c4)
+![trollface_desktop_wallpaper_by_mikasda_fan_art_wallpaper_other_2011-removebg-preview](https://github.com/876N/Parknol.exe/assets/133999409/b2dca078-f085-4b3e-9090-adabc0b782e0)
+
